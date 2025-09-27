@@ -7,7 +7,7 @@
 
 ★ You can usually find me in the Marvel / DC Area. If I don't talk much it probably means I'm in class with PT open on a new tab.
 
-★ H + C is always welcome. <3
+★ C + H is always welcome. <3
 
 ★ I do have dyslexia, so bare with me if im illegible or taking a long ass time to type.
 
