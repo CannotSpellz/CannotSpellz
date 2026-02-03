@@ -11,7 +11,7 @@
 
 ★ I do have dyslexia, so bare with me if im illegible or taking a long ass time to type.
 
-★ Best to pm if you have something to say- I am afk a lot. But I love to chat!! I'm very chill- I promise. <3
+★ Best to whisper if you have something to say- I am afk a lot. But I love to chat!! I'm very chill- I promise. <3
 
 
 
