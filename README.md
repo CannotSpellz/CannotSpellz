@@ -18,4 +18,4 @@
 ## Interests !!
 MARVEL, Supernatural (cw), Drawing, Fanfiction, DC, Hannibal, Psych, Fighting Games (will kick your ass in streetfighter!! :p )
 
-CannotSpellz Strawpage tells you a bit about me, while the other Strawpage is my commission info!! ^^
+CannotSpellz Strawpage tells you a bit about me, while the other link is my artfight!! ^^
