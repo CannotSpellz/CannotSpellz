@@ -13,6 +13,8 @@
 
 ★ Best to whisper if you have something to say- I am afk a lot. But I love to chat!! I'm very chill- I promise. <3
 
+★ I've had a few issues with this in the past- I'm not a Loki yume or kin- just a fan!! Yume and selfshippers welcome to int, but I won't be in character. ^^
+
 
 
 ## Interests !!
